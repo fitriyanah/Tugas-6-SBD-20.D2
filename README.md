@@ -1,1 +1,10 @@
 # Tugas-6-SBD-20.D2
+![1](https://user-images.githubusercontent.com/106644837/177025157-7192ac29-363f-45e5-9460-6c88849f9e61.png)
+![2](https://user-images.githubusercontent.com/106644837/177025167-fc31ea6f-ddb8-418c-8363-7b4ade3f84ac.png)
+![3](https://user-images.githubusercontent.com/106644837/177025175-5c86d691-46ee-409f-88fe-0cd6fb93d286.png)
+![4](https://user-images.githubusercontent.com/106644837/177025181-d7c0ee39-b44b-41f8-ba98-805f5e88358d.png)
+![5](https://user-images.githubusercontent.com/106644837/177025182-1c80ce70-07a8-4210-8b51-904be30fd2b5.png)
+![6](https://user-images.githubusercontent.com/106644837/177025184-922e38ba-7730-4501-98ad-b3392912ce7c.png)
+![7](https://user-images.githubusercontent.com/106644837/177025186-28c7c662-5434-4224-9901-5187e7ca67fa.png)
+![8](https://user-images.githubusercontent.com/106644837/177025187-b1271938-9ff3-4388-84c1-2cccc68362cd.png)
+![9](https://user-images.githubusercontent.com/106644837/177025188-689ebf77-1753-4724-9521-a895753a1658.png)
